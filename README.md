@@ -1,1 +1,1 @@
-﻿# Uas_DataMining Riski Syabani
+﻿# Uas_DataMining Riski Syahbani
